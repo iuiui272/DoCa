@@ -5,7 +5,7 @@
 # 5 More coming.
 6 Email me at: [Ruberryrj@gmail.com](Ruberryrj@gamil.com)
 7 Share: [iuiui272.github.io/DoCa](https://bit.ly/2Uw4NPX)
-8 To share hold on the link and to email press on the link [link](https://drive.google.com/uc?export=download&id=1dv8bg98be_yQDpt0xvKMO-LoUD71KeeRiFStjW9W6t8) but if you 
+8 To share hold on the link and to email press on the [link](mailto:Ruberryrj@gmail.com) but if you 
 9 want to work at DoCa you say cmd: work {your name}
 10
 11
